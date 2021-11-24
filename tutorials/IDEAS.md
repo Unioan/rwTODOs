@@ -1,4 +1,7 @@
 #IDEAS
 
-1. Make an airplane from icecream sticks
-2. Borrow neighbors hoes for Posedon's party
+[ ] Make an airplane from icecream sticks
+[ ] Borrow neighbors hoes for Posedon's party
+[ ] Create wind dragon out of metal
+[ ] Coloured ice in pool for sking 
+[ ] Fireworks with sparkles of shampain
